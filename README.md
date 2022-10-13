@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Vision without action is daydream. Action without vision is nightmare.."
+💬 Quote of the Day: "To avoid criticism do nothing, say nothing, be nothing."
 <!-- end quote -->
