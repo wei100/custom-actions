@@ -1,0 +1,19 @@
+{
+  "name": "custom-actions",
+  "version": "1.0.0",
+  "description": "custom actions",
+  "main": "index.js",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+http://github.com/wei100/custom-actions"
+  },
+  "author": "wei",
+  "license": "ISC",
+  "dependencies": {
+    "@actions/core": "^1.10.0",
+    "axios": "^1.1.2"
+  }
+}
