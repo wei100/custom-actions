@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Life is like a music. Just go with the flow, enjoy the rhythm. Feel the beat."
+💬 Quote of the Day: "I would rather live and love where death is king than have eternal life where love is not."
 <!-- end quote -->
