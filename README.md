@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "The world is going to need all of the different kinds of minds to work together."
+💬 Quote of the Day: "Those who hope for no other life are dead even for this"
 <!-- end quote -->
