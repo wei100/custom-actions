@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "I don't believe people are looking for the meaning of life as much as they are looking for the experience of being alive."
+💬 Quote of the Day: "My father always used to say that when you die, if you've got five real friends, then you've had a great life."
 <!-- end quote -->
