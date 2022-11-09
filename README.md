@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Society is like a large piece of frozen water; and skating well is the great art of social life."
+💬 Quote of the Day: "Funny how just when you think life can't possibly get any worse it suddenly does."
 <!-- end quote -->
