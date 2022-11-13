@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "It's a wonderful thing to be optimistic. It keeps you healthy and it keeps you resilient."
+💬 Quote of the Day: "There's no difference between a pessimist who says, "Oh, it's hopeless, so don't bother doing anything", and an optimist who says, "Don't bother doing anything, it's going to turn out fine anyway". Either way, nothing happens."
 <!-- end quote -->
