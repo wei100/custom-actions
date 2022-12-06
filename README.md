@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Your time is limited, so don't waste it living someone else's life. Don't be trapped by dogma - which is living with the results of other people's thinking. Don't let the noise of other's opinions drown out your own inner voice. And most important, have the courage to follow your heart and intuition. They somehow already know what you truly want to become. Everything else is secondary."
+💬 Quote of the Day: "In real life, it is the hare who wins. Every time. Look around you. And in any case it is my contention that Aesop was writing for the tortoise market. Hares have no time to read. They are too busy winning the game."
 <!-- end quote -->
