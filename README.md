@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "In real life, it is the hare who wins. Every time. Look around you. And in any case it is my contention that Aesop was writing for the tortoise market. Hares have no time to read. They are too busy winning the game."
+💬 Quote of the Day: "Don't use all-or-nothing thinking. Take each day as its own day, and don't worry about it if you mess up one day. The most important thing you can do is just get back up on the horse."
 <!-- end quote -->
