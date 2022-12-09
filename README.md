@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Don't use all-or-nothing thinking. Take each day as its own day, and don't worry about it if you mess up one day. The most important thing you can do is just get back up on the horse."
+💬 Quote of the Day: "Life is something to do when you can't get to sleep."
 <!-- end quote -->
