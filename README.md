@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Life is something to do when you can't get to sleep."
+💬 Quote of the Day: "You can't really be strong until you see a funny side to things."
 <!-- end quote -->
