@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "There's no difference between a pessimist who says, "Oh, it's hopeless, so don't bother doing anything", and an optimist who says, "Don't bother doing anything, it's going to turn out fine anyway". Either way, nothing happens."
+💬 Quote of the Day: "Life is a series of collisions with the future; it is not the sum of what we have been, but what we yearn to be."
 <!-- end quote -->
