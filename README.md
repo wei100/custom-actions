@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Life is a series of collisions with the future; it is not the sum of what we have been, but what we yearn to be."
+💬 Quote of the Day: "There is only one difference between a long life and a good dinner: that, in the dinner, the sweets come last."
 <!-- end quote -->
