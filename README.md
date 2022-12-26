@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Life is either a daring adventure or nothing."
+💬 Quote of the Day: "Life is the childhood of our immortality."
 <!-- end quote -->
