@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Make your interests gradually wider and more impersonal, until bit by bit the walls of the ego recede, and your life becomes increasingly merged in the universal life."
+💬 Quote of the Day: "Somewhere there's a score being kept, so you have an obligation to live life as well as you can, be as engaged as you can. The human condition means that we can zone out and forget what the hell we're doing."
 <!-- end quote -->
