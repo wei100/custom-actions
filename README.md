@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Perpetual inspiration is as necessary to the life of goodness, holiness and happiness as perpetual respiration is necessary to animal life."
+💬 Quote of the Day: "Closed systems run down and get more chaotic over time. Always get better by being 'open' to outside energy and templates of better ways to function."
 <!-- end quote -->
