@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "The plague of man is boasting of his knowledge."
+💬 Quote of the Day: "Society is like a large piece of frozen water; and skating well is the great art of social life."
 <!-- end quote -->
