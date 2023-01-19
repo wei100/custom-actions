@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "I really don't have any weaknesses. I do have areas of my life that I am working on to grow, heal and evolve. Giving myself permission to rest is an area I am working on. Not rescuing my children and grandchildren is another area."
+💬 Quote of the Day: "If you have love in your life it can make up for a great many things you lack. If you don't have it, no matter what else there is, it's not enough."
 <!-- end quote -->
