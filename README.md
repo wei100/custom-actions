@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "I had to stop traveling alone because I missed so many planes. When somebody runs up to you in the airport and begins to tell you their life story, you can't say, 'Excuse me, boo,' as they're weeping on your bosom."
+💬 Quote of the Day: "I learned that focus is key, not just in running a company, but in your personal life as well"
 <!-- end quote -->
