@@ -1,3 +1,5 @@
 <!-- start quote -->
-💬 Quote of the Day: "I learned that focus is key, not just in running a company, but in your personal life as well"
+💬 Quote of the Day: "Everyday new difficulties arise, new compromises has to be made, new chaos to be dealt with. 
+
+No story in this world could end happily! If it ended happily it would be your death. So enjoy everyday as if its your last day!"
 <!-- end quote -->
