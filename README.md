@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life."
+💬 Quote of the Day: "Things are not bad in themselves, but our cowardice makes them so."
 <!-- end quote -->
