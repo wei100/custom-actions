@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Things are not bad in themselves, but our cowardice makes them so."
+💬 Quote of the Day: "Reality is merely an illusion, albeit a very persistent one."
 <!-- end quote -->
