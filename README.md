@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "A person starts to live when he can live outside himself."
+💬 Quote of the Day: "Time is something you can't replace."
 <!-- end quote -->
