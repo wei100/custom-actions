@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Time is something you can't replace."
+💬 Quote of the Day: "Character develops itself in the stream of life."
 <!-- end quote -->
