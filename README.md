@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "To whom much is given, much is expected. I do believe this. It's embedded in me."
+💬 Quote of the Day: "The purpose of art is washing the dust of daily life off our souls."
 <!-- end quote -->
