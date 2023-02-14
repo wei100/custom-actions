@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "I actually think happiness is the absence of suffering. It comes from peace. That comes from being careful about desire, judgment, and reaction."
+💬 Quote of the Day: "Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb."
 <!-- end quote -->
