@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "People say I've had a difficult time in life. I think I've had an exciting time in life."
+💬 Quote of the Day: "Life is half spent before we know what it is."
 <!-- end quote -->
