@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "You only have to do a very few things right in your life so long as you don't do too many things wrong."
+💬 Quote of the Day: "I want to be in the arena. I want to be brave with my life. And when we make the choice to dare greatly, we sign up to get our asses kicked. We can choose courage or we can choose comfort, but we can't have both. Not at the same time."
 <!-- end quote -->
