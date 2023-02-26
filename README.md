@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Life will always get busy, make time to do the things you love."
+💬 Quote of the Day: "In between goals is a thing called life, that has to be lived and enjoyed."
 <!-- end quote -->
