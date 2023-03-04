@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "Don't shy away from earning, but don't sell away your soul."
+💬 Quote of the Day: "Grow deep roots to harvest rich fruit! When your roots run deep, you cannot help but bear the fruit of the Spirit."
 <!-- end quote -->
