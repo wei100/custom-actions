@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "I hope that my story, I hope that my life is.. An encouragement for people, especially in Brooklyn. I feel humbled and blessed."
+💬 Quote of the Day: "The existential vacuum manifests itself mainly in a state of boredom."
 <!-- end quote -->
