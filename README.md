@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "The existential vacuum manifests itself mainly in a state of boredom."
+💬 Quote of the Day: "We have an unlimited ability to ignore our ignorance."
 <!-- end quote -->
