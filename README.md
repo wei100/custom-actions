@@ -1,3 +1,3 @@
 <!-- start quote -->
-💬 Quote of the Day: "The purpose of art is washing the dust of daily life off our souls."
+💬 Quote of the Day: "Forget regret, or life is yours to miss."
 <!-- end quote -->
